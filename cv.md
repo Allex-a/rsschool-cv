@@ -6,8 +6,8 @@
 
 Телефон +37529  
 Телеграм @Hely_lya  
-Электронная почта:kaisi7967@gmail.com  
-GitHub:
+Электронная почта:rskaisi7967@gmail.com  
+GitHub: <https://github.com/Allex-a>
 
 ## О себе
 
