@@ -5,8 +5,8 @@
 ## Контактная информация
 
 Телефон +37529  
-Телеграм @Hely_lya  
-Электронная почта:rskaisi7967@gmail.com  
+Телеграм @Al_lya  
+Электронная почта:email@gmail.com  
 GitHub: <https://github.com/Allex-a>
 
 ## О себе
